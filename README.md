@@ -115,7 +115,7 @@ Konzept, Inhalte und Gestaltung dieses Tools sind urheberrechtlich geschützt.
 - Veränderung und Verbreitung als eigenes Werk
 - Nutzung im Rahmen eigener Coaching-Angebote
 
-Kontakt: hallo@tanja-sattelberg.de · [tanja-sattelberg.de](https://tanja-sattelberg.de)
+Kontakt: info@veraenderungsweg.de
 
 ---
 
